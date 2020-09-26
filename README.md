@@ -1,1 +1,0 @@
-# SpecsMultimedia1.0
